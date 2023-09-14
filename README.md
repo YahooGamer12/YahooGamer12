@@ -5,4 +5,4 @@
 ![](https://media.tenor.com/SeNPABrnbpkAAAAM/pokemon-hypno.gif) *o Yago merece um 10 o Yago merece um 10 ۞۞۞*
 
 
-[alura](alura.com.br)
+[alura](https://www.alura.com.br/)
